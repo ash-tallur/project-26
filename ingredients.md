@@ -1,0 +1,1 @@
+Ingredients 3 medium size potatoes or 2 large potatoes or 1 extra large potatoes or 315 grams potato 3.5 cups cold water dry rosemary or oregano or mixed herbs - as required rock salt (edible and food grade) or black salt or regular salt - as required red chili powder or paprika or cayenne pepper as required - optional oil for deep frying - as required
